@@ -21,7 +21,8 @@ Head to [RyanLucht.com](http://ryanlucht.com) for my main website.
 Don’t forget that you can find me elsewhere on the web:
     
     twitter : @ryanlucht
-    facebook: [facebook.com/ryan.lucht](http://facebook.com/ryan.lucht)
+    facebook: ryan.lucht
+    instagram: jazzfreak11
 
 
 
